@@ -1,0 +1,1 @@
+# Global-Equity-Research-Group
